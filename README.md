@@ -1,0 +1,1 @@
+# AnalizaIWizualizacjaDanych2025
